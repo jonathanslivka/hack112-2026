@@ -1,0 +1,1 @@
+2026 Hack112 Project for Team 23: Alexis, Ethan, Jonathan
